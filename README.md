@@ -21,3 +21,7 @@ mummy nv undu inka naku health bagaledu kada attudi
 nenu niku rly ni send chaythu lekunte chayk
 
 nv Friday intiki po ok na 8 rly
+
+tc 78
+
+ok bye don't reply after see s all
