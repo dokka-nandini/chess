@@ -60,6 +60,18 @@ https://chatgpt.com/share/69c23e25-6e24-8008-9404-994275e8a66f
 
 
 
+
+https://cheatsheets.zip/
+
+https://devsheets.io/
+
+https://www.rameshfadatare.com/learn-java-programming/ ==> important
+https://akcoding.com/java-tutorial/introduction-to-java/
+
+
+
+
+
 python
 
 https://chatgpt.com/share/69c25603-bec0-8008-b2da-e8fd46eabb42
