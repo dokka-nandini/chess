@@ -1,9 +1,3 @@
-same tc 
-baga chadvuko 
-pray god
-eat good 
-take sleep 
-
-and bee calm 
-and imagine good and job will come
+delete history in chess ok tc 78 same nv kuda thinnu paduko health Jagaratha ok bye nanna inka later i will msg u or not 
+all ss
 
