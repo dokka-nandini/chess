@@ -1,6 +1,13 @@
-hello health ok na tc 78
+all ok but 8
 
-anything there
-tell
-naku ok 8
-tc 8
+materials e roju update chrstga 
+
+
+tc
+
+jagrattaga undu 
+
+
+baga cheppu interview 
+
+all the best 
