@@ -1,4 +1,8 @@
+thinna everything ok
+akkaki mail chesa
+institute vallu em pettaru 
 
-hello
-ec ok kada. health tc 888
-nenu thinna inka emi 
+inka any responses vacchaya
+ec
+8 8 power infinity 
+
