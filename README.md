@@ -1,5 +1,13 @@
 # chess 
-same 8 tc gm
-7 Tinnu tc 8
 
-all ok niku ok kada 
+edho pain 
+sometimes crying
+77
+
+88
+
+gm 
+
+tc 
+
+jagrattaga 8888888888888888
