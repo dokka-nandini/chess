@@ -1,4 +1,4 @@
-see hello college id card upload for infosys
+ college id card upload for infosys
 
 https://chatgpt.com/share/69b8fa7d-13c4-8008-b329-4f98ee82c6e0
 
@@ -219,5 +219,5 @@ integrated face detection and time stamp attendance monitoring system
 in resume and ask chatgpt
 
 
-
+578 tc
 aroma hotel and portifolio see code in github
