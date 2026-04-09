@@ -1,4 +1,4 @@
-hello college id card upload for infosys
+see hello college id card upload for infosys
 
 https://chatgpt.com/share/69b8fa7d-13c4-8008-b329-4f98ee82c6e0
 
