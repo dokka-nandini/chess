@@ -221,5 +221,3 @@ in resume and ask chatgpt
 
 
 aroma hotel and portifolio see code in github
-
-ok 785 gm tc s
