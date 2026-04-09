@@ -218,5 +218,5 @@ cyber bullying detection in resume
 integrated face detection and time stamp attendance monitoring system 
 in resume and ask chatgpt
 
-
+may Saturday or tmr coming ok 78 because tcs walkin ok na
 aroma hotel and portifolio see code in github
